@@ -1,0 +1,1 @@
+# mizore-fu.github.io
